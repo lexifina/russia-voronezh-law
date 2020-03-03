@@ -1,0 +1,8 @@
+# О внесении изменения в статью 10 Закона Воронежской области «О здравоохранении в Воронежской области»
+Document type: Закон
+Number: 1-ОЗ
+Date signed: 2020-03-02
+Publication date: 2020-03-03
+Publication number: 3600202003030012
+Signing body: Воронежская область
+Official publication page: http://publication.pravo.gov.ru/Document/View/3600202003030012
